@@ -3,7 +3,7 @@
 
 **Tim Dosen Komputasi Statistik – Sains Data - ITERA**
 
-**Nama / NIM:** Fitra / 124450097 (Kelompok 6)
+**Nama / NIM:** Fitra / 124450102 
 
 ---
 
